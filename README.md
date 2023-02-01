@@ -15,6 +15,7 @@ I'm tyler, I like to keep trying new things
 
 ![kaygb](https://count.getloli.com/get/@kaygb?theme=rule34)
 
-[![](https://i.loli.net/2020/11/29/tTI94Yde7WmCfSV.png)](https://www.pixiv.net/artworks/104999750)
+[![](![104999750_p0_master1200](https://user-images.githubusercontent.com/123502807/216171379-2b86cf56-a2f6-43eb-b4de-1f1fdbacb9c7.jpg)
+)](https://www.pixiv.net/artworks/104999750)
 
 
