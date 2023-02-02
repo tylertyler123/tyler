@@ -4,8 +4,11 @@
 I'm tyler, I like to keep trying new things 
 
 
+
 This is my phone number: +1 (867) 686 1896
-you can use it to contact me anytime
+
+
+you can use it to contact me anytime.
 
 
 
